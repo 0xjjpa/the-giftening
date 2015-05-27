@@ -17,4 +17,12 @@ Just a compilation of gifs, perfect for your daily team communication
 ![im-done](https://cloud.githubusercontent.com/assets/9445267/7831134/f63ad128-0453-11e5-96e9-1094b6c61965.gif)
 ![giphy-4](https://cloud.githubusercontent.com/assets/9445267/7831137/f9a32a5e-0453-11e5-9a96-7d0ed4e04e82.gif)
 ![lol_ricky_gervais](https://cloud.githubusercontent.com/assets/9445267/7831139/fc88d91c-0453-11e5-8135-00548adfa936.gif)
+![df2dfhs](https://cloud.githubusercontent.com/assets/9445267/7831144/0e32729a-0454-11e5-9aab-d7c74130759c.gif)
+![nope](https://cloud.githubusercontent.com/assets/9445267/7831147/113fec1a-0454-11e5-840b-873eee6370a6.gif)
+![tumblr_inline_n8ihisakao1s22o6k](https://cloud.githubusercontent.com/assets/9445267/7831148/13ee1ae0-0454-11e5-91cc-d1a89133737d.gif)
+
+![200-2](https://cloud.githubusercontent.com/assets/9445267/7831150/16a231a4-0454-11e5-81a0-09fd52513647.gif)
+![ylfdg3u](https://cloud.githubusercontent.com/assets/9445267/7831151/1ac73cac-0454-11e5-9834-b621a765b089.gif)
+![tumblr_inline_nfirl87sls1raprkq](https://cloud.githubusercontent.com/assets/9445267/7831153/1e7a0c08-0454-11e5-9cd6-005480417881.gif)
+![i-regret-nothing](https://cloud.githubusercontent.com/assets/9445267/7831155/2557e748-0454-11e5-9137-f6f64186b6be.gif)
 
